@@ -1,4 +1,6 @@
-aviator prediction
+aviator predator 
+I'm looking for help with how to reach me for more information about more issue 
+so I'm grad for this
 ## Hi there 👋
 
 <!--
